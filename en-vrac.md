@@ -1,0 +1,17 @@
+# En vrac
+
+## Modernité, ego et héroïsme
+
+Le fragment comme forme de l'ego issue de la modernité ? écriture héroïque ? L'homme au centre des choses, de la réflexion... maintenant que le monde est uniformisé, comme le dit Kundera, le fragment peut-il devenir autre chose, avoir une autre visée ? L'attitude héroïque se veut fermement indépendante; sans verser dans la fusion, le fragment peut-il porter un désir d'union ? de collectivité ? Le soi peut-il être un moyen de parler du nous, du grand Un. On refusera le cynisme, le rejet du corps et la dualité : le fragment pourrait servir une révolte, enfin, contre la modernité pure et dure, celle de Descartes ; viser enfin l'union du corps et de l'esprit. Nous produirions une œuvre non pas hypermoderne, mais métamoderne. Une œuvre qui embrasse les progrès de la modernité et la sagesse antique intercontinentale, l'esprit et le corps, la durée et le présent, l'intellect et l'affect, un retour à l'équilibre, une homéostasie existentielle.
+
+Fragments à l'angle existentiel, pour un livre d'espoir et de révolution metamoderne
+
+Hypermodernité, les deux extrêmes de l'ego : l'immortalité hors du corps (réduit la vie à la conscience, au savoir) sans égard pour l'affect (inscrit dans le corps); et l'immortalité du soi individuel par la spiritualité (traditionnelle ou nouvelle) sans fondement scientifique et, surtout, empreinte de jugement. Au contraire, la méta modernité vise à englober corps et esprit, expérience physique et consciente, puis se retrouverait davantage dans une spiritualité scientifique unifiante.
+
+Le fragment non pas comme outil critique, mais comme forme revendicative de la complexité, de la richesse et de la puissante gestalt que nous sommes.
+
+## Matérialité
+
+Cioran pris dans la peur de la mort, lire ici la mort de l'ego. (Séméria) Si le corps ne survit pas, cette matérialité de la conscience maintes fois remodelé par le temps, tout porte à croire que la conscience habite le monde de manière indépendante, et n'emprunte qu'une forme pour un bref instant avant de se fondre à nouveau dans sa création et de prendre forme nouvelle au moment prévu par ses lois. Or, le livre est semblable; on crée une matérialité qui porte une forme de conscience, et cette matérialité est destructible, mais sa conscience se fond dans les consciences qui l'ont lue et lui survivent. Chaque vie, chaque œuvre porte un écho. La numérisation refuse cependant cet écho, elle vise une pérennité matérielle et consciente totales, une symphonie au devenir cacophonique, faute de mesures et de silences... ou bien un unisson, enfin. Admettons que nous soyons parvenus à une matérialité interreliée et pérenne, à une conscience universelle partagée... Le grand Un aurait matérialisé sa conscience, qui aurait elle-même reconstruit la sienne ! N'est-ce pas la grande boucle du sens ? Celle qui se trouvait sous notre nez depuis tout ce temps, par la forme de la naît-sens ? 
+
+Le livre n'est-il pas l'objet le plus représentatif de notre conscience, une empreinte figée de notre essence immortelle, et qui parvient à toutes les autres par le billet d'une matérialité hors de celle qui l'aura produite; la conscience produit la matière, la matière produit une matérialité nouvelle qui abritera une part de sa conscience, laquelle rejoint ainsi d'autres consciences dans la durée. *Le livre immortalise le soi; la conscience universelle poursuit son chemin.*
